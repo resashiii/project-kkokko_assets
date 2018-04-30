@@ -1,0 +1,1 @@
+# project-kkokko_assets
